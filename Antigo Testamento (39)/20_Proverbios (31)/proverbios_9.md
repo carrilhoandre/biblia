@@ -4,7 +4,7 @@
 ### 2. Já sacrificou as suas vítimas, misturou o seu vinho, e já preparou a sua mesa.
 ### 3. Já deu ordens às suas criadas, já anda convidando desde as alturas da cidade, dizendo:
 ### 4. Quem é simples, volte-se para aqui. Aos faltos de entendimento diz:
-### 5. Vinde, comei do meu pão, e bebei do vinho que tenho mistuardo.
+### 5. Vinde, comei do meu pão, e bebei do vinho que tenho misturado.
 ### 6. Deixai os insensatos, e vivei; e andai pelo caminho do entendimento.
 ### 7. O que repreende o escarnecedor, afronta toma para si; e o que censura o ímpio, recebe a sua mancha.
 ### 8. Não repreendas o escarnecedor, para que te não aborreça; repreenda o sabio, e amar-te-á.
